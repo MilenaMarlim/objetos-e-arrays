@@ -7,6 +7,7 @@ OBS.: O código está comentado para facilitar a aprendizagem das pessoas que ac
 
 🚀  Quer ver o post do linkedin? Clique:
 
+ https://bit.ly/34bj9dB
 
 
 Qualquer dúvida, me envie uma mensagem! Vamos aprender juntos!
